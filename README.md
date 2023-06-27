@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @SprekNd.
+- I am here for Research, Knowledge, and Entertainment.
+- Have a Nice Day!!!
